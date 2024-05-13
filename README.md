@@ -1,4 +1,7 @@
-[![phot](https://github.com/officialjoegith/Fifa-Mott-External/assets/90398840/137bb592-ce90-4e43-aab6-03823ff73fc6)](https://tinyurl.com/47fs75db)
+[![phot](https://github.com/pupa555/ApexLegends-Mott-External/assets/79679741/016f44ce-08f7-4bc4-905e-c54b1d210ed4)](https://tinyurl.com/47fs75db)
+
+![изображение](https://github.com/pupa555/ApexLegends-Mott-External/assets/79679741/0613605e-c737-45fe-8162-6254e0d95be1)
+
 # Have fun!
 
 ## Tags 
